@@ -1,4 +1,4 @@
-![alt text](https://media.discordapp.net/attachments/1263699809802653727/1514340054162608289/Screenshot_2026-05-05_5.53.15_PM_1_1_80.webp?ex=6a358e93&is=6a343d13&hm=6acd1ba9451d184f536d42b45c3a864e47203c530b3af908830a1e1bf10593a2&=&format=webp&width=969&height=615)
+![alt text](https://media.discordapp.net/attachments/1263699809802653727/1513370152714899637/Screenshot_2026-05-05_5.53.15_PM_1.png?ex=6a35fbc9&is=6a34aa49&hm=04e7fae7cc936c714844e8411928610f8e9aafafab832ca9de24eca634e43491&=&format=webp&quality=lossless&width=1203&height=763)
 <p align="center">     ♡   .     ROTZ .  16 + 
 <p align="center">  ᛝ     W2I / INT 24/7   08/20   ◞
 <p align="center">  ♡ #1 moonberry / sleepyhugs enjoyer   !!

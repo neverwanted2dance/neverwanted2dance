@@ -1,5 +1,5 @@
 ![alt text](https://media.discordapp.net/attachments/1263699809802653727/1513370152714899637/Screenshot_2026-05-05_5.53.15_PM_1.png?ex=6a3de4c9&is=6a3c9349&hm=f80110eba4401b588e35f18b8c351c8931d8b4d5370726d04263f3421a91bc75&=&format=webp&quality=lossless&width=1203&height=763)
-<p align="center">     ♡   .     ROTZ .  16 + 
+<p align="center">     ♡   .     ROTZ .  16 (15- iwec or dni) 
 <p align="center">  ᛝ     W2I / INT 24/7   08/20   ◞
 <p align="center">  ♡ #1 moonberry / sleepyhugs enjoyer   !!
 <p align="center">  I SELL DRUGS TO THE KIDS 'CAUSE THAT'S WHAT PAYS

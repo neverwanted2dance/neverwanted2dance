@@ -1,9 +1,9 @@
-![alt text](https://media.discordapp.net/attachments/1263699809802653727/1513370152714899637/Screenshot_2026-05-05_5.53.15_PM_1.png?ex=6a3de4c9&is=6a3c9349&hm=f80110eba4401b588e35f18b8c351c8931d8b4d5370726d04263f3421a91bc75&=&format=webp&quality=lossless&width=1203&height=763)
+![alt text](https://media.discordapp.net/attachments/1263699809802653727/1521465724974006282/IMG_0354.png?ex=6a44eee0&is=6a439d60&hm=a7569103f2fadc15f55c5603a37b31288b38c091e6bd6f0dc32ed7c714463942&=&format=webp&quality=lossless&width=1203&height=717)
 <p align="center">     ♡   .     ROTZ .  16 (15- iwec or dni) 
-<p align="center">  ᛝ     W2I / INT 24/7   08/20   ◞
+<p align="center">  ᛝ     W2I / INT  .    08/20   ◞
 <p align="center">  ♡ #1 moonberry / sleepyhugs enjoyer   !!
-<p align="center">  I SELL DRUGS TO THE KIDS 'CAUSE THAT'S WHAT PAYS
-<p align="center"> I MAKE A COUPLE OF HUNDRED IN JUST ONE DAY.
+<p align="center">  I'M THE ONE WHO'S SO IN LOVE W/ YOU!
+<p align="center">  OH! MAN! I'M GONNA SCREW YOU ALL THE WAY!
 <p align="center"> 　　𐙚　　adhd . depression 　 ₊  ◞　
   
-![alt text](https://media.discordapp.net/attachments/1263699809802653727/1514459093476179988/Untitled8_20260610213940.png?ex=6a2b7171&is=6a2a1ff1&hm=b5a90269540bcf8229e43a61dab40d426655da8176a5f1acb8279b6cc282a6e8&=&format=webp&quality=lossless&width=1137&height=531)
+![alt text](https://media.discordapp.net/attachments/1519606498198818816/1521464382981148762/Untitled45_20260630053529.png?ex=6a44eda0&is=6a439c20&hm=e9718e63c0b1d02000359dbbd3eb3e74980664577fc8df1bae7045a1f75f1031&=&format=webp&quality=lossless&width=726&height=457)

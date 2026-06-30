@@ -9,3 +9,4 @@
 ![alt text](https://media.discordapp.net/attachments/1263699809802653727/1521469930338385950/Untitled45_20260630055811.png?ex=6a44f2ca&is=6a43a14a&hm=b2e3c857f02e5c0b8f5450df6fb07cd6a2fe7b326bfe1ec3514fa9d3e1aaf294&=&format=webp&quality=lossless&width=1090&height=686)
 
 <p align="center"> 　　𐙚　　hf 100 as shelly . 98 as vee　 ₊  ◞　
+<p align="center">  ♡ gifted skins heavily appreciated.<3   !!

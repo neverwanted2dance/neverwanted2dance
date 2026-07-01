@@ -10,3 +10,4 @@
 
 <p align="center"> 　　𐙚　　hf 100 as shelly . 98 as vee　 ₊  ◞　
 <p align="center">  ♡ gifted skins heavily appreciated.<3   !!
+<p align="center">  ᛝ     ponytown's vee version 1  .     ◞

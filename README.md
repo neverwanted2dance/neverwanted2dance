@@ -14,6 +14,6 @@
  　16 ,, 　-15 iwec　.ᐟ
 ![image](https://64.media.tumblr.com/87929fbd84aa6fd270a649402650aa1a/9adb6cf03b445779-53/s100x200/a95fc1ec3f899b7b971ec07f784c135c8ebd110d.gifv) ![image](https://64.media.tumblr.com/87e766e773c0aa1ef084a190e0913c95/9adb6cf03b445779-af/s100x200/6da293ac3247b46156350c49a3006197c632e549.gifv)
 
-<p align="center
+<p align="center"
   
   ![image](https://64.media.tumblr.com/8b4fbf70afd82d0eee5633e81e336f60/870ab6445a71dfac-61/s2048x3072/fe84f501fdb471f4b24fbfc5a7fb06a84e4150de.pnj)

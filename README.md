@@ -5,10 +5,10 @@
   ![image](https://64.media.tumblr.com/5b7a29a852e5e46ab4e780565a56dc95/abcce8d50fd1505e-4c/s1280x1920/64fb2b4ed0b90c46cc31da643064744a48098f34.webp)
   <p align="center"
     
-　𓍼　　rotz　ₒᵣ　vee
+　![image](https://64.media.tumblr.com/050437fd8e57681bee84cdffc1b656eb/fef3b4daa346fecc-57/s75x75_c1/2cfe89a0009cc468898fa7c8fb1d8fbb5aabe157.gifv) 𓍼　　rotz　ₒᵣ　vee
  <p align="center"
 
-   𓈒　　he　／　they　 ͜ ◞
+![image](https://64.media.tumblr.com/5699032e9f3f6ea47fd3d708ca3d6dac/5732e589548c1c67-1f/s75x75_c1/ed56ca43a4b37d726c1560138f23145e537e97ab.gifv)   𓈒　　he　／　they　 ͜ ◞
  <p align="center"
    
  　16 ,, 　-15 iwec　.ᐟ

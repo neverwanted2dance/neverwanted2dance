@@ -1,4 +1,3 @@
-![image](https://64.media.tumblr.com/c6316da4bb0e342c8fbe77b844c139bd/bad82f39dd94aba3-81/s2048x3072/b3ea78396287fc73e615e63f5d9d158a3d7ec23f.pnj)
 <p align="center"
   
   ![image](https://64.media.tumblr.com/8b4fbf70afd82d0eee5633e81e336f60/870ab6445a71dfac-61/s2048x3072/fe84f501fdb471f4b24fbfc5a7fb06a84e4150de.pnj)

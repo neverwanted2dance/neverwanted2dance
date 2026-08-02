@@ -28,3 +28,6 @@
  　 ,, 　@pt-walk-of-fame : vee version 1 + online  24/7 , thank you 4 adding me! i'm very honored. ^_^　.ᐟ
 ![image](https://64.media.tumblr.com/8e2fe9e51a9a05d321256386b30f5609/9deaa7aaa226868c-67/s1280x1920/35a6c68084b9678c78d70af0bfa8d9e72c9a7456.pnj)
 ![image](https://64.media.tumblr.com/f487dbae7f1c5febcae443cc329b53ab/9deaa7aaa226868c-85/s500x750/c982d5bf95729b3b3ef745b1dd89cd30907d2232.pnj)
+
+　 ,, 　@title-town : vee version 1 . Thank you so much!!　.ᐟ
+![image](https://64.media.tumblr.com/8dd16e955704f2fa3a64d200e14954f4/5d699173fa5ada48-8b/s500x750/c91abe20fd65a6b778bfbf87b5a5b9cd5874f6e7.pnj)

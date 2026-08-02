@@ -36,3 +36,11 @@
   <p align="center"
     
 ![image](https://64.media.tumblr.com/8dd16e955704f2fa3a64d200e14954f4/5d699173fa5ada48-8b/s500x750/c91abe20fd65a6b778bfbf87b5a5b9cd5874f6e7.pnj)
+
+  <p align="center"
+    
+ ,, 　@pt-medals : vee !! TY! :DD　.ᐟ
+
+  <p align="center"
+
+![image](https://64.media.tumblr.com/60c97410de5c9b01392b4e926096ed4c/a8432500b12112f8-34/s500x750/cd75253455f65c4adc06cb12aa27164bf3d81c91.pnj)

@@ -32,5 +32,7 @@
 <p align="center"
   
 　 ,, 　@title-town : vee version 1 . Thank you so much!!　.ᐟ
-  
+
+  <p align="center"
+    
 ![image](https://64.media.tumblr.com/8dd16e955704f2fa3a64d200e14954f4/5d699173fa5ada48-8b/s500x750/c91abe20fd65a6b778bfbf87b5a5b9cd5874f6e7.pnj)

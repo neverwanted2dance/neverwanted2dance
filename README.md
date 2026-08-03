@@ -36,7 +36,7 @@
 
 <p align="center"
   
-　 ,, 　@title-town : vee version 1 . Thank you so much!!　.ᐟ
+　 ,, 　@title-town　.ᐟ
 
   <p align="center"
     
@@ -44,7 +44,7 @@
 
   <p align="center"
     
- ,, 　@pt-medals : vee !! TY! :DD　.ᐟ
+ ,, 　@pt-medals　.ᐟ
 
   <p align="center"
 

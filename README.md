@@ -52,7 +52,7 @@
 
 <p align="center"
 
-,, 　@pt-medals　.ᐟ
+,, 　@ponychievements　.ᐟ
 
   <p align="center"
 

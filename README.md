@@ -49,3 +49,11 @@
   <p align="center"
 
 ![image](https://64.media.tumblr.com/60c97410de5c9b01392b4e926096ed4c/a8432500b12112f8-34/s500x750/cd75253455f65c4adc06cb12aa27164bf3d81c91.pnj)
+
+<p align="center"
+
+,, 　@pt-medals　.ᐟ
+
+  <p align="center"
+
+  ![image](https://64.media.tumblr.com/339e51bea63023742f1e0455ac0cb26b/75e0722d221ac78a-ae/s500x750/f70b8dd9e13ce3b326ed7c2273d5b91337e9e4c5.pnj)

@@ -32,28 +32,7 @@
 
  　 ,, 　@pt-walk-of-fame : vee version 1 + online  24/7 , thank you 4 adding me! i'm very honored. ^_^　.ᐟ
 ![image](https://64.media.tumblr.com/8e2fe9e51a9a05d321256386b30f5609/9deaa7aaa226868c-67/s1280x1920/35a6c68084b9678c78d70af0bfa8d9e72c9a7456.pnj)
-![image](https://64.media.tumblr.com/f487dbae7f1c5febcae443cc329b53ab/9deaa7aaa226868c-85/s500x750/c982d5bf95729b3b3ef745b1dd89cd30907d2232.pnj)
-
-<p align="center"
-  
-　 ,, 　@title-town　.ᐟ
-
-  <p align="center"
-    
+![image](https://64.media.tumblr.com/f487dbae7f1c5febcae443cc329b53ab/9deaa7aaa226868c-85/s500x750/c982d5bf95729b3b3ef745b1dd89cd30907d2232.pnj) 
 ![image](https://64.media.tumblr.com/8dd16e955704f2fa3a64d200e14954f4/5d699173fa5ada48-8b/s500x750/c91abe20fd65a6b778bfbf87b5a5b9cd5874f6e7.pnj)
-
-  <p align="center"
-    
- ,, 　@pt-medals　.ᐟ
-
-  <p align="center"
-
 ![image](https://64.media.tumblr.com/60c97410de5c9b01392b4e926096ed4c/a8432500b12112f8-34/s500x750/cd75253455f65c4adc06cb12aa27164bf3d81c91.pnj)
-
-<p align="center"
-
-,, 　@ponychievements　.ᐟ
-
-  <p align="center"
-
-  ![image](https://64.media.tumblr.com/339e51bea63023742f1e0455ac0cb26b/75e0722d221ac78a-ae/s500x750/f70b8dd9e13ce3b326ed7c2273d5b91337e9e4c5.pnj)
+![image](https://64.media.tumblr.com/339e51bea63023742f1e0455ac0cb26b/75e0722d221ac78a-ae/s500x750/f70b8dd9e13ce3b326ed7c2273d5b91337e9e4c5.pnj)

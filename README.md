@@ -19,7 +19,7 @@ $$\color{#546a19}\text{ " Is my microphone tangled? " }$$
  <p align="center"
   
  　16 ,,　-15 iwec　.ᐟ
-![image](https://64.media.tumblr.com/6844857d6cfe4bcff89abc8bfdc6956d/d2857ba4ded0753d-29/s75x75_c1/38246d0fd4c34c3ff2d08b034964b06257d74093.webp) ![image](https://s5.ezgif.com/tmp/ezgif-5bd8bb6771657e6d.webp)
+![image](https://64.media.tumblr.com/6844857d6cfe4bcff89abc8bfdc6956d/d2857ba4ded0753d-29/s75x75_c1/38246d0fd4c34c3ff2d08b034964b06257d74093.webp)
 
 <p align="center"
   

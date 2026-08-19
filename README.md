@@ -48,4 +48,4 @@ $$\color{#738c31}\text{ All of my awards! Thank you! }$$
 
 ![image](https://64.media.tumblr.com/e379f901ec697f3937203a90a2f66b49/e70b4cef92039798-88/s1280x1920/900c5a6616d70f6d2346a42c637308fea7865a60.webp)
 
-$$\color{#ce6294}\text{ I love my Glisten, he's the best thing I have in the world. <3 My dear. }$$
+$$\color{#ce6294}\text{ I love my Glisten, he's the best thing I have in the world. My dear. <3 }$$

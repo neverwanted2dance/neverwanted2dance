@@ -45,6 +45,7 @@ $$\color{#738c31}\text{ All of my awards! Thank you! }$$
 ![image](https://64.media.tumblr.com/8dd16e955704f2fa3a64d200e14954f4/5d699173fa5ada48-8b/s500x750/c91abe20fd65a6b778bfbf87b5a5b9cd5874f6e7.pnj)
 ![image](https://64.media.tumblr.com/60c97410de5c9b01392b4e926096ed4c/a8432500b12112f8-34/s500x750/cd75253455f65c4adc06cb12aa27164bf3d81c91.pnj)
 ![image](https://64.media.tumblr.com/339e51bea63023742f1e0455ac0cb26b/75e0722d221ac78a-ae/s500x750/f70b8dd9e13ce3b326ed7c2273d5b91337e9e4c5.pnj)
+![image](https://64.media.tumblr.com/88d2bfb4c33064241670c775b81dc1c9/e68df0c72d226a15-09/s400x600/ce2fd57853127ff4877fa57add6d6bb32cb11d11.pnj)
 
 ![image](https://64.media.tumblr.com/e379f901ec697f3937203a90a2f66b49/e70b4cef92039798-88/s1280x1920/900c5a6616d70f6d2346a42c637308fea7865a60.webp)
 

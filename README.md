@@ -38,6 +38,10 @@ $$\color{#88a044}\text{" Ahem... Is it working? "}$$
 
 <p align="center"
 
+$$\color{#738c31}\text{ number 1 vee fan / vee main }$$
+
+<p align="center"
+
 $$\color{#738c31}\text{ All of my awards! Thank you! }$$
  　 
 ![image](https://64.media.tumblr.com/8e2fe9e51a9a05d321256386b30f5609/9deaa7aaa226868c-67/s1280x1920/35a6c68084b9678c78d70af0bfa8d9e72c9a7456.pnj)

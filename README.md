@@ -1,4 +1,6 @@
 <p align="center"
+  
+$$\color{#FF0000}\text{ DO NOT ASSOCIATE ME WITH MY FRIENDS!! Do not drag me into their situations. Whatever they do is their business. Not mine. }$$
 
   ![image](https://64.media.tumblr.com/97f08bf4bd83daab859a9f3785ea40e3/ddfb6a4af0fe118e-23/s1280x1920/e26409ad0848d2ee637d034cec3968cdb185602b.pnj)
   ![image](https://64.media.tumblr.com/3d70d0f6d8d57060f88efc5986317ff2/ddfb6a4af0fe118e-de/s1280x1920/57a98e16060a3de2abbe31717e2e405c4af6b1fb.pnj)

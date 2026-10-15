@@ -2,6 +2,11 @@
   
 $$\color{#FF0000}\text{ DO NOT ASSOCIATE ME WITH MY FRIENDS!! Do not drag me into their situations. Whatever they do is their business, not mine. }$$
 
+<p align="center"
+  
+$$\color{#FF0000}\text{ VeeVerOne-OnlyMe is not me. They have been taking heavy inspo off of my vee ponies (labeling, taking ideas, ect.) Even changing their GitHub name to target towards me. Please do not associate with them, they are known for hanging around other copiers too. }$$
+
+
   ![image](https://64.media.tumblr.com/97f08bf4bd83daab859a9f3785ea40e3/ddfb6a4af0fe118e-23/s1280x1920/e26409ad0848d2ee637d034cec3968cdb185602b.pnj)
   ![image](https://64.media.tumblr.com/3d70d0f6d8d57060f88efc5986317ff2/ddfb6a4af0fe118e-de/s1280x1920/57a98e16060a3de2abbe31717e2e405c4af6b1fb.pnj)
   ![image](https://64.media.tumblr.com/6881f15a36aa8c938b6505900628c9e9/e70b4cef92039798-43/s2048x3072/f8f4ab52607a6625bfb45d992a699587062212ed.webp)

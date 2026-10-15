@@ -6,7 +6,7 @@ $$\color{#FF0000}\text{ DO NOT ASSOCIATE ME WITH MY FRIENDS!! Do not drag me int
   
 $$\color{#FF0000}\text{ VeeVerOne-OnlyMe is not me. They have been taking heavy inspo off of my vee ponies (labeling, taking ideas, ect.) }$$
 $$\color{#FF0000}\text{ Even changing their GitHub name to target towards me. Please do not associate with them, they are known for hanging around other copiers too.}$$
-$$\color{#FF0000}\text{ Please do not harass them, I'm only here to spread awareness.}$$
+$$\color{#FF0000}\text{ Do not harass them, I'm only here to spread awareness.}$$
 
 
 <p align="center"

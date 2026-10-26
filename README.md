@@ -4,7 +4,7 @@ $$\color{#FF0000}\text{ DO NOT ASSOCIATE ME WITH MY FRIENDS!! Do not drag me int
 
 <p align="center"
   
-$$\color{#FF0000}\text{ SinSaysHelloToYou is not me. They have been taking heavy inspo off of my vee ponies (labeling, taking ideas, ect.) }$$
+$$\color{#FF0000}\text{ HelloFriendImLuna is not me. They have been taking heavy inspo off of my vee ponies (labeling, taking ideas, ect.) }$$
 $$\color{#FF0000}\text{ Even changing their GitHub name to target towards me. (used to be VeeVerOne-OnlyMe) }$$
 $$\color{#FF0000}\text{ Do not harass them, I'm only here to spread awareness.}$$
 $$\color{#FF0000}\text{ With the whole situation regarding the Fictionkilled family, do not involve me in it. I have nothing to do with it and I have too much to deal with as is.}$$

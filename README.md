@@ -1,15 +1,4 @@
 <p align="center"
-  
-$$\color{#FF0000}\text{ DO NOT ASSOCIATE ME WITH MY FRIENDS!! Do not drag me into their situations. Whatever they do is their business, not mine. }$$
-
-<p align="center"
-  
-$$\color{#FF0000}\text{ HelloFriendImLuna is not me. They have been taking heavy inspo off of my vee ponies (labeling, taking ideas, ect.) }$$
-$$\color{#FF0000}\text{ Even changing their GitHub name to target towards me. (used to be VeeVerOne-OnlyMe) }$$
-$$\color{#FF0000}\text{ Do not harass them, I'm only here to spread awareness.}$$
-$$\color{#FF0000}\text{ With the whole situation regarding the Fictionkilled family, do not involve me in it. I have nothing to do with it and I have too much to deal with as is.}$$
-
-<p align="center"
 
   ![image](https://64.media.tumblr.com/97f08bf4bd83daab859a9f3785ea40e3/ddfb6a4af0fe118e-23/s1280x1920/e26409ad0848d2ee637d034cec3968cdb185602b.pnj)
   ![image](https://64.media.tumblr.com/3d70d0f6d8d57060f88efc5986317ff2/ddfb6a4af0fe118e-de/s1280x1920/57a98e16060a3de2abbe31717e2e405c4af6b1fb.pnj)

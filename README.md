@@ -9,7 +9,7 @@ $$\color{#546a19}\text{ " Is my microphone tangled? " }$$
 
    <p align="center"
      
-  ![image](https://s5.ezgif.com/tmp/ezgif-52da541895b9e2bd.webp)
+  ![image](https://64.media.tumblr.com/cd2cdf87a61a45e354f624fe04c0fa35/57dc5d1bf548c846-97/s500x750/257fd3a11a82522e4b0186d4b54cda46f1be0d5e.webp)
   <p align="center"
     
 　![image](https://64.media.tumblr.com/ad8ac5e0e9833afbb86a4125a4f8cbd4/6c2c1c7df8c2d3ec-e6/s75x75_c1/23d41b27479f2e9c6602c7bdbec1a998429a9757.webp) 𓍼　　rotz　ₒᵣ　vee
@@ -58,5 +58,7 @@ $$\color{#738c31}\text{ All of my awards! Thank you! }$$
 ![image](https://64.media.tumblr.com/c709d3a65facd525f1d02466175c071c/54e89ea829204158-71/s400x600/888618dfebcdc0dd791b6eb61de3bab64a884ff8.pnj)
 
 ![image](https://64.media.tumblr.com/e379f901ec697f3937203a90a2f66b49/e70b4cef92039798-88/s1280x1920/900c5a6616d70f6d2346a42c637308fea7865a60.webp)
+
+<p align="center"
 
 $$\color{#ce6294}\text{ I love my Glisten, he's the best thing I have in the world. My dear. <3 }$$
